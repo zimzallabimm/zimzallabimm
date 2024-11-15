@@ -2,7 +2,7 @@
 
 Meu nome é **Isis**
 
-* Estou cursando a 1" série do Ensino Médio, na Escola Estadual Professor João Jorge Marmorato:
+* Estou cursando a 1" série do Ensino Médio, na Escola Estadual Professor João Jorge Marmorato;
 * Gosto muito de ouvir música, e tenho uma grande paixão por jazz;
 * Gosto de jogar jogos online, principalmente os de carros;
 * Meu gênero favorito de filmes é terror.
